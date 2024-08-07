@@ -8,9 +8,9 @@ meu nome é izabelly
 
   ### você entrar em contato comigo 📫
 
-  paludettomarcelo@gmail.com
+  izabelly.padilha@escola.pr.gov.br
 
-  @marcelopaludetto
+  @izabelly08
 
 !.[_].(https://media.tenor.com/i7llTDaTPtUAAAAC/naruto.gif)
   
